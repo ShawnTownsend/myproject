@@ -1,1 +1,1 @@
-Brooklyn, NY is my hometown.
+I was born and raised in Brooklyn, New York.
