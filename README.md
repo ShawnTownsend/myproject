@@ -1,1 +1,1 @@
-I was born and raised in Brooklyn, New York.
+I was born and raised in Brooklyn, New York. I was born in 1999.
